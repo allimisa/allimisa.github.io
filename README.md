@@ -1,2 +1,2 @@
-# Alice Kapiris
+# Alice Kapiri
 ## Dit UOA Student :)
